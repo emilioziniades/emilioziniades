@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello 👋
 
 - 🙇🏻‍♂️ I'm Emilio
 - 📚 I'm an economics graduate
